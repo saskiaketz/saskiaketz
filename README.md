@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @saskiaketz
-- 👀 I’m interested in design, startups, DIY logo + marketing.
+- 👀 I’m interested in type design & startups.
 - 🌱 I’m currently learning how to find product-market fit for https://mojomox.com/
 - 💞️ I’m looking to collaborate on helping small businesses succeed.
 - 📫 How to reach me saskia@mojomox.com
